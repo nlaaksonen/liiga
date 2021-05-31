@@ -1,4 +1,4 @@
-# Who should've won Liiga in 2019--2020?
+# Who should've won Liiga in 2019-2020?
 
 > Please note that this project is work in progress.
 
